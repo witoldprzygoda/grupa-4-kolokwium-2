@@ -1,9 +1,9 @@
-# Kolokwium nr 2 Grupa nr 3
+# Kolokwium nr 2 Grupa nr 4
 
-**Data kolokwium:** 23 stycznia 2025, czwartek  
-**Czas trwania:** 8:00 - 9:05, możliwe maksymalnie do 9:30  
+**Data kolokwium:** 24 stycznia 2025, piątek
+**Czas trwania:** 14:00 - 15:05, możliwe maksymalnie do 15:30  
 
-Proszę pamiętać, że w godzinach 9:05 - 9:30 odbędzie się **Quiz nr 6**, więc dłuższe pisanie kolokwium oznacza rezygnację lub krótszy czas na napisanie (nieobowiązkowego) quizu.
+Proszę pamiętać, że w godzinach 15:05 - 15:30 odbędzie się **Quiz nr 6**, więc dłuższe pisanie kolokwium oznacza rezygnację lub krótszy czas na napisanie (nieobowiązkowego) quizu.
 
 ---
 
